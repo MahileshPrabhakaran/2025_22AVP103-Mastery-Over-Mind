@@ -9,7 +9,7 @@
    People I am grateful to in Amritha
 
 Date: 14/10/2025
-I am gratefullto my friend Dinesh, a first year from ece department who has helped me in various occassions as he is my neighbour but on the day 14/10/2025 he helped me a great deal as gave me a ride home when no one in my home was available to pick me up, htis saved a whole lot of travelling for me and was a huge help
+I am gratefullto my friend Dinesh, a first year from ece department who has helped me in various occasions as he is my neighbhour but on the day 14/10/2025 he helped me a great deal as gave me a ride home when no one in my home was available to pick me up, this saved a whole lot of travelling for me and was a huge help
 
 Date: 24/9/2025
 I am gratefull to my classmates Adhi and Ashwin who helped me during a day I took leave, by keeping record of all that happened in class during that day and on the next day when I came, they took the effort and time to inform all that has happened and even helped me understand all the concepts that was thought to me
